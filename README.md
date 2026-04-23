@@ -1,5 +1,5 @@
 # 💫 About Me:I am Keshava.G
-I'm currently studying as a 1st year B.E student in Bangalore Institute of Technology.<br>I'm currently pursuing as a student of computer science engineering.<br>
+I'm currently studying as a 2st year B.E student in Bangalore Institute of Technology.<br>I'm currently pursuing as a student of computer science engineering.<br>
 
 
 ## 🌐 Socials:
